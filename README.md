@@ -12,7 +12,7 @@ Here are some ideas to get you started: -->
 - 🤔 if you can  recommend good content on Computer vision, feel free to drop the links
   
 - 💬 if you are curious about data communities in Ghana/Africa, health, and medical technology you sure know where to find me.
-- 
+  
 - 📫 [Medium](https://medium.com/@joo-mansa), [LinkedIn](https://www.linkedin.com/in/joana-owusu-appiah-8751a9166/)
 - 😄 Pronouns: she/ her
 - ⚡ Fun fact: I wish I could skip the commuting part of traveling.
